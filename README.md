@@ -1,2 +1,2 @@
 # STT-A2
-All the files for this assignment are available at https://iitgnacin-my.sharepoint.com/:f:/g/personal/22110283_iitgn_ac_in/EuSr_6u1eYZPjNxOBNpvryEBhxDV1-IBXMBu4iseAq3q8g?e=059TQi
+All the files for this assignment are available at https://drive.google.com/drive/folders/19HOp0SAypAyYGQWqI0yJ73d1m6NLkmxI?usp=sharing
